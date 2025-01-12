@@ -1,0 +1,1 @@
+# Zaibatsu-Japan-RP-Script-No-Key
